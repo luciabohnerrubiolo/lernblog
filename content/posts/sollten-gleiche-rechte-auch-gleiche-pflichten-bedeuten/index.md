@@ -9,17 +9,15 @@ description = "Wer ins Militär geht, kann sich auf wochenlange Trainings, das T
 
 ##### Die Teilnahme an einem Orientierungstag exklusiv für Frauen und ein Gespräch mit Oberleutnant Fabienne Walser bringen uns dem Leben einer Frau im Militär näher.
 
+![Foto von Simona Tvarekova](20220917_144956.jpg "Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern")
+
 ### Anpassungsfähigkeit ist wichtig
 
 Es ist ein Samstagmorgen, als wir uns am Bahnhof Bern treffen, um gemeinsam bis zur Haltestelle Guisanplatz Expo zu fahren. Wir halten beide ein «Aufgebot» als Gratisbillett in der Hand, welches wir nach der Anmeldung per Post erhalten haben. Damit dürfen wir heute den ganzen Tag den ÖV im Kanton Bern benutzen. Wir sind nämlich auf dem Weg zu einem Orientierungstag des Schweizer Militärs, der exklusiv für Frauen ist. Schon aufgeregt steigen wir in das Tram und lesen noch einmal das Programm für den Tag durch. Beim Guisanplatz angekommen, müssen wir noch eine kurze Strecke laufen und schon stehen wir vor dem Amt für Bevölkerungsschutz, Sport und Militär Bern. Das Tor steht weit offen und wir betreten das Areal. Zielstrebig laufen wir auf die Mannschaftskaserne zu, vor der ein paar uniformierte Personen stehen. Sie zeigen uns den Weg in das Gebäude, wo uns eine Frau erwartet und schon das Anmeldeformular für die Rekrutierung und andere Broschüren austeilt. Mit Informationsmaterial ausgerüstet begeben wir uns in einen Raum, in dem die anderen Teilnehmerinnen bereits ihren Platz gefunden haben und gespannt auf die Einführung warten. Kaum haben wir uns gesetzt, beginnt schon der Anlass. Zuerst wird eine Vorstellungsrunde gemacht und danach bekommen wir die verschiedenen Teams und Funktionen der Armee vorgestellt.
 
 Kurz vor der Pause geht die Tür des Raumes auf und eine Frau in Uniform kommt herein. Diese stellt sich als Fabienne Walser, Oberleutnant im Bereich Sanität, vor. Sie ist direkt nach einem einwöchigen Wiederholungskurs an diesen Anlass gekommen und scheint in der vergangenen Nacht reichlich wenig Schlaf bekommen zu haben. Für die Pause wurde draussen schon ein «Znüni»-Buffet vorbereitet. Währenddem wir ein «Gipfeli» essen, lesen wir die vielen Flyer durch, in denen junge Frauen abgebildet sind und von ihrer Zeit im Militär berichten. Am Anlass wird oft betont, dass im Militär alle gleichbehandelt werden. Auch Frau Walser bestätigt uns später, dass, wenn man sich anpassen könne, die Regeln befolge und das bringe, was verlangt wird, niemand bevorzugt oder vernachlässigt werde. Es sei nicht korrekt, jemanden, egal welche Hautfarbe oder Geschlecht, anders zu behandeln. Man könne nicht mal anhand der Kleider unterschieden werden, weil alle in der gleichen Uniform sind.
 
-
-
 ### Ausbildungen und Neues ausprobieren
-
-
 
 Was motiviert Frauen freiwillig den Militärdienst zu machen? Schliesslich verpflichten sie sich dazu, eine 18-wöchige Grundausbildung zu absolvieren. Während dieser können sie nur an den Wochenenden nach Hause gehen.  Danach müssen sie jährlich Wiederholungskurse von je 19 Tagen besuchen oder entscheiden sich für das Durchdienermodell, bei dem sie ihre gesamte Dienstzeit bei der Armee am Stück absolvieren.
 
@@ -30,8 +28,6 @@ Wir haben festgestellt, dass die Motive dafür, den Militärdienst zu leisten, s
 «Ich musste zeigen, dass ich das Gleiche kann; genauso schwer tragen, viel laufen, viel essen, wenig schlafen wie sie *(die männlichen Kollegen).* Nach zwei Wochen haben sie gemerkt, dass ich dieselbe Leistung erbringe, mich akzeptiert und mir geholfen.» Das antwortet Frau Walser auf die Frage, ob sie sich schnell in das Kollektiv habe integrieren können. Sie sagt, sie habe sich in den ersten zwei Wochen noch bei den Männern beweisen müssen. Hätte sie immer gejammert, hätte sie nicht den Anschluss gefunden. Sie wäre nur ein Störfaktor gewesen, und das, obwohl sie sich freiwillig angemeldet hatte.
 
 Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen können.
-
-
 
 ### Zwischen Freiwilligkeit und Obligation
 
