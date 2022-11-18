@@ -27,11 +27,21 @@ Wir haben festgestellt, dass die Motive dafür, den Militärdienst zu leisten, s
 
 «Ich musste zeigen, dass ich das Gleiche kann; genauso schwer tragen, viel laufen, viel essen, wenig schlafen wie sie *(die männlichen Kollegen).* Nach zwei Wochen haben sie gemerkt, dass ich dieselbe Leistung erbringe, mich akzeptiert und mir geholfen.» Das antwortet Frau Walser auf die Frage, ob sie sich schnell in das Kollektiv habe integrieren können. Sie sagt, sie habe sich in den ersten zwei Wochen noch bei den Männern beweisen müssen. Hätte sie immer gejammert, hätte sie nicht den Anschluss gefunden. Sie wäre nur ein Störfaktor gewesen, und das, obwohl sie sich freiwillig angemeldet hatte.
 
+> «Ich musste zeigen, dass ich das Gleiche kann; genauso schwer tragen, viel laufen, viel essen, wenig schlafen wie sie *(die männlichen Kollegen).* Nach zwei Wochen haben sie gemerkt, dass ich dieselbe Leistung erbringe, mich akzeptiert und mir geholfen.» 
+>
+> \- Oberleutnant Fabienne Walser
+
 Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen können.
 
 ### Zwischen Freiwilligkeit und Obligation
 
+> «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben. Wieso sollten wir nicht auch dort gleichberechtigt sein und als Frau auch etwas unserem Land zurückgeben?»
+>
+> \- Oberleutnant Fabienne Walser
+
 Nun haben wir bereits einen guten Einblick in das bekommen, was einen nach einer Anmeldung für die Rekrutierung erwarten könnte. Wie der Rekrutierungsprozess für die Frauen genau funktioniert, erklärt uns der Kommandant des Rekrutierungszentrums Sumiswald (BE), Oberst i Gst Martin Gafner. Dieser Prozess ist für Frauen und Männer unterschiedlich. Wenn Männer sich für die Rekrutierung angemeldet haben, sind sie schon dazu verpflichtet, den Dienst zu leisten. Frauen hingegen verpflichten sich erst, wenn sie, nachdem sie an der Aushebung waren (Einteilung eines zukünftigen Rekruten in eine Funktion), den Vertrag unterschreiben. Der Rekrutierungsprozess ist unterschiedlich, weil Frauen sich freiwillig dafür entscheiden und Männer entweder den Militär- oder Zivildienst leisten und sonst Ersatzzahlungen machen müssen. Ebenfalls ist die Teilnahme an einem Orientierungstag für volljährige Männer obligatorisch, während sie für Frauen freiwillig ist. Frau Walser fände es gut, wenn wenigstens der Orientierungstag für alle obligatorisch wäre. «Viele nehmen diesen Orientierungstag gar nicht wahr und werfen den Zettel mit der Einladung direkt ins Altpapier», sagt sie. Sie sei auch nicht anders gewesen. Mit 18 habe sie den Brief aufgemacht und sich gedacht, wenn sie nicht aufgrund ihres Vaters so nahe mit dem Militär aufgewachsen wäre, hätte sie nur den Titel gelesen und den Brief weggeworfen. Man höre auch viele Schauermärchen, weil jeder erzähle, dass seine Rekrutenschule die Schlimmste gewesen sei. Dabei werde immer noch etwas zu der Geschichte dazu gedichtet. Ihrer Meinung nach sei es am besten, wenn man die Chance wahrnehme und sich ein eigenes Bild machen könne. Ausserdem wäre es korrekt, wenn es für alle eine Wehrpflicht gäbe. Sie erklärt: «Eine Frau kann auch einen Beitrag leisten und wenn nicht, muss sie auch nicht die anderen Ansprüche von Gerechtigkeit verlangen. Es ist wie eine Waage. Ich verlange etwas und gebe etwas zurück. \[…] Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben. Wieso sollten wir nicht auch dort gleichberechtigt sein und als Frau auch etwas unserem Land zurückgeben?»
+
+> «Eine Frau kann auch einen Beitrag leisten und wenn nicht, muss sie auch nicht die anderen Ansprüche von Gerechtigkeit verlangen.»
 
 ### Nach dem Essen wird Sport gemacht
 
