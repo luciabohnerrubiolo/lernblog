@@ -5,14 +5,14 @@ draft = false
 pinned = false
 description = "\n\n"
 +++
-![Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern. Foto von Simona Tvarekova](20220917_144956.jpg)
-
 {{<lead>}}
 *Wer ins Militär geht, kann sich auf eine herausfordernde Zeit gefasst machen. Dabei erwartet Männer und Frauen dasselbe mit dem Unterschied, dass Frauen den Dienst freiwillig machen. Wir führen ein Gespräch zum Thema Militärpflicht mit Oberleutnant Fabienne Walser und nehmen an einem Orientierungstag exklusiv für Frauen teil, der uns den Militärdienst schmackhaft macht.*
 
+{{</lead>}}
+
 ![Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern. Foto von Simona Tvarekova](20220917_144956.jpg)
 
-{{</lead>}}
+
 
 Es ist ein Samstagmorgen, als wir uns am Bahnhof Bern treffen, um gemeinsam bis zur Haltestelle Guisanplatz Expo zu fahren. Wir halten beide ein ‘Aufgebot’ als Gratisbillett in der Hand, das wir nach der Anmeldung per Post erhalten haben. Damit dürfen wir heute den ganzen Tag den ÖV im Kanton Bern benutzen. Wir sind nämlich auf dem Weg zu einem Orientierungstag der Schweizer Armee, der exklusiv für Frauen ist. Schon aufgeregt steigen wir in das Tram und lesen noch einmal das Programm für den Tag durch. Beim Guisanplatz angekommen, müssen wir noch eine kurze Strecke zu Fuss gehen und schon stehen wir vor dem Amt für Bevölkerungsschutz, Sport und Militär Bern. Das Tor steht weit offen und wir betreten das Areal. Zielstrebig laufen wir auf die Mannschaftskaserne zu, vor der ein paar uniformierte Personen stehen. Sie zeigen uns den Weg in das Gebäude, wo uns eine Frau erwartet und schon das Anmeldeformular für die Rekrutierung und andere Broschüren austeilt. Mit Informationsmaterial ausgerüstet, begeben wir uns in einen Raum, in dem die anderen Teilnehmerinnen bereits ihren Platz gefunden haben und gespannt auf die Einführung warten. Kaum haben wir uns gesetzt, beginnt schon der Anlass. Zuerst wird eine Vorstellungsrunde gemacht und danach bekommen wir die verschiedenen Einheiten und Funktionen der Armee vorgestellt.
 
