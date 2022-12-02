@@ -66,9 +66,13 @@ Nun haben wir bereits einen guten Einblick in das bekommen, was einen nach einer
 >
 > \-Oberleutnant Fabienne Walser
 
+![Auf dem Weg zum Mittagessen. Foto von Lucia Bohner Rubiolo](whatsapp-image-2022-12-02-at-15.03.36.jpg)
+
 ### Nach dem Essen wird Sport gemacht
 
 Ungefähr um 12 Uhr begibt sich unsere Gruppe in ein anderes Gebäude, in dem schon das Mittagessen auf uns wartet. Es gibt Salat, Pasta und ein Dessert. Das Znüni und Mittagessen wurden von einem Armeekoch zubereitet und wir können sagen: Wenn das Essen der Rekrutenschule genauso gut schmeckt wie an diesem Tag, kann sich auf jeden Fall keiner darüber beklagen.
+
+![Der Marktplatz bestehend aus einer Materialausstellung und informativen Postern](picture4.png)
 
 Gestärkt gehen wir nun zurück in einen Raum, wo schon ein «Marktplatz» vorbereitet ist. Er besteht aus einer Materialausstellung und informativen Postern zu den Einheiten der Armee wie auch den Anforderungsprofilen der Funktionen. An einem der Stände können wir sogar verschiedene militärische Ausrüstungsgegenstände anprobieren. Zum Schluss dürfen wir den Sporttest machen, der bestimmt, für welche Funktion jemand zugelassen wird. Zu diesem Test gehören der Standweitsprung, Medizinballstoss, Einbeinstand, Rumpfkrafttest und progressive Ausdauerlauf. Dadurch bekommen wir eine Kostprobe davon, welche körperlichen Anstrengungen der Militärdienst mit sich bringt, denn bei einem Grossteil der Disziplinen werden wir nur als knapp genügend eingeteilt. Falls wir uns dazu entscheiden, ins Militär zu gehen, werden wir wohl keine Militärpolizistinnen oder Grenadiere. Das sind nämlich diejenigen Funktionen, die die höchsten Leistungen erfordern.
 
