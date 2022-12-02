@@ -1,7 +1,7 @@
 +++
 title = "Sollten gleiche Rechte auch gleiche Pflichten bedeuten?"
 date = "2022-11-18"
-draft = true
+draft = false
 pinned = false
 description = "\n\n"
 +++
