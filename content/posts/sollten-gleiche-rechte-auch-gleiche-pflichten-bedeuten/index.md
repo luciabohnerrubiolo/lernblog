@@ -5,7 +5,7 @@ draft = false
 pinned = false
 description = "\n\n"
 +++
-![Foto von Simona Tvarekova. Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern.](20220917_144956.jpg)
+![Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern. Foto von Simona Tvarekova](20220917_144956.jpg)
 
 {{<lead>}}
 *Wer ins Militär geht, kann sich auf eine herausfordernde Zeit gefasst machen. Dabei erwartet Männer und Frauen dasselbe mit dem Unterschied, dass Frauen den Dienst freiwillig machen. Wir führen ein Gespräch zum Thema Militärpflicht mit Oberleutnant Fabienne Walser und nehmen an einem Orientierungstag exklusiv für Frauen teil, der uns den Militärdienst schmackhaft macht.*
@@ -19,6 +19,8 @@ Es ist ein Samstagmorgen, als wir uns am Bahnhof Bern treffen, um gemeinsam bis 
 
 
 ### Anpassungsfähigkeit ist wichtig
+
+
 
 Kurz vor der Pause geht die Tür des Raumes auf und eine Frau in Uniform kommt herein. Diese stellt sich als Fabienne Walser, Oberleutnant im Bereich Sanität, vor. Sie ist direkt nach einem einwöchigen Wiederholungskurs an diesen Anlass gekommen und scheint in der vergangenen Nacht reichlich wenig Schlaf bekommen zu haben. Für die Pause ist draussen schon ein «Znüni»-Buffet vorbereitet worden. Währenddem wir ein «Gipfeli» essen, lesen wir die vielen Flyer durch, in denen junge Frauen abgebildet sind und von ihrer Zeit im Militär berichten. Am Anlass wird oft betont, dass im Militär alle gleichbehandelt werden. Auch Fabienne Walser bestätigt uns später, dass, wenn man sich anpassen könne, die Regeln befolge und das bringe, was verlangt werde, niemand bevorzugt oder vernachlässigt werde. Es sei nicht korrekt, jemanden, egal welche Hautfarbe oder Geschlecht, anders zu behandeln. Man könne nicht mal anhand der Kleider unterschieden werden, weil alle in der gleichen Uniform sind.
 
