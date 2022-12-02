@@ -7,20 +7,18 @@ description = "\n\n"
 +++
 ![Foto von Simona Tvarekova. Eingangstor des Amts für Bevölkerungsschutz, Sport und Militär in Bern.](20220917_144956.jpg)
 
-
-
 {{<lead>}}
 *Wer ins Militär geht, kann sich auf eine herausfordernde Zeit gefasst machen. Dabei erwartet Männer und Frauen dasselbe mit dem Unterschied, dass Frauen den Dienst freiwillig machen. Wir führen ein Gespräch zum Thema Militärpflicht mit Oberleutnant Fabienne Walser und nehmen an einem Orientierungstag exklusiv für Frauen teil, der uns den Militärdienst schmackhaft macht.*
 
 {{</lead>}}
+
+
 
 Es ist ein Samstagmorgen, als wir uns am Bahnhof Bern treffen, um gemeinsam bis zur Haltestelle Guisanplatz Expo zu fahren. Wir halten beide ein ‘Aufgebot’ als Gratisbillett in der Hand, das wir nach der Anmeldung per Post erhalten haben. Damit dürfen wir heute den ganzen Tag den ÖV im Kanton Bern benutzen. Wir sind nämlich auf dem Weg zu einem Orientierungstag der Schweizer Armee, der exklusiv für Frauen ist. Schon aufgeregt steigen wir in das Tram und lesen noch einmal das Programm für den Tag durch. Beim Guisanplatz angekommen, müssen wir noch eine kurze Strecke zu Fuss gehen und schon stehen wir vor dem Amt für Bevölkerungsschutz, Sport und Militär Bern. Das Tor steht weit offen und wir betreten das Areal. Zielstrebig laufen wir auf die Mannschaftskaserne zu, vor der ein paar uniformierte Personen stehen. Sie zeigen uns den Weg in das Gebäude, wo uns eine Frau erwartet und schon das Anmeldeformular für die Rekrutierung und andere Broschüren austeilt. Mit Informationsmaterial ausgerüstet, begeben wir uns in einen Raum, in dem die anderen Teilnehmerinnen bereits ihren Platz gefunden haben und gespannt auf die Einführung warten. Kaum haben wir uns gesetzt, beginnt schon der Anlass. Zuerst wird eine Vorstellungsrunde gemacht und danach bekommen wir die verschiedenen Einheiten und Funktionen der Armee vorgestellt.
 
 
 
 ### Anpassungsfähigkeit ist wichtig
-
-
 
 Kurz vor der Pause geht die Tür des Raumes auf und eine Frau in Uniform kommt herein. Diese stellt sich als Fabienne Walser, Oberleutnant im Bereich Sanität, vor. Sie ist direkt nach einem einwöchigen Wiederholungskurs an diesen Anlass gekommen und scheint in der vergangenen Nacht reichlich wenig Schlaf bekommen zu haben. Für die Pause ist draussen schon ein «Znüni»-Buffet vorbereitet worden. Währenddem wir ein «Gipfeli» essen, lesen wir die vielen Flyer durch, in denen junge Frauen abgebildet sind und von ihrer Zeit im Militär berichten. Am Anlass wird oft betont, dass im Militär alle gleichbehandelt werden. Auch Fabienne Walser bestätigt uns später, dass, wenn man sich anpassen könne, die Regeln befolge und das bringe, was verlangt werde, niemand bevorzugt oder vernachlässigt werde. Es sei nicht korrekt, jemanden, egal welche Hautfarbe oder Geschlecht, anders zu behandeln. Man könne nicht mal anhand der Kleider unterschieden werden, weil alle in der gleichen Uniform sind.
 
@@ -48,11 +46,13 @@ Wir haben festgestellt, dass die Motive dafür, den Militärdienst zu leisten, s
 
 «Ich musste zeigen, dass ich das Gleiche kann; genauso schwer tragen, viel laufen, viel essen, wenig schlafen wie sie *(die männlichen Kollegen).*» Das antwortet Fabienne Walser auf die Frage, ob sie sich schnell in das Kollektiv habe integrieren können. Sie sagt, sie habe sich in den ersten zwei Wochen noch den Männern beweisen müssen. Nach zwei Wochen hätten sie gemerkt, dass sie dieselbe Leistung erbringe, sie akzeptiert und ihr geholfen. Hätte sie immer gejammert, hätte sie nicht den Anschluss gefunden. Sie wäre nur ein Störfaktor gewesen, und das, obwohl sie sich freiwillig angemeldet hatte.
 
-Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen.
-
 > «Ich musste zeigen, dass ich das Gleiche kann: genauso schwer tragen, viel laufen, viel essen, wenig schlafen wie sie.»
 >
 > \- Oberleutnant Fabienne Walser
+
+Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen.
+
+
 
 {{<box title="Frauenanteil im Schweizer Militär">}}
 
@@ -67,8 +67,6 @@ Zurzeit beträgt der Frauenanteil knapp 1%, was im Vergleich zu vergangenen Jahr
 > «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben.»
 >
 > \- Oberleutnant Fabienne Walser
->
->
 
 ### Zwischen Freiwilligkeit und Obligation
 
@@ -79,8 +77,6 @@ Nun haben wir bereits einen guten Einblick in das bekommen, was einen nach einer
 > «Eine Frau kann auch einen Beitrag leisten und wenn nicht, muss sie auch nicht die anderen Ansprüche von Gerechtigkeit verlangen.»
 >
 > \-Oberleutnant Fabienne Walser
-
-
 
 ### Nach dem Essen wird Sport gemacht
 
