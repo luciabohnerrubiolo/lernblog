@@ -1,7 +1,7 @@
 +++
 headless = true
 title = "luciabohnerrubiolo"
-description = "A Journey of Life and Learning"
+description = "Reportagen"
 footerLeft = "Powered by 💛 and [lernblog.org](https://www.lernblog.org)"
 footerRight = "[🏷️ Tags](/tags/) | [🗃️ Archive](/posts/) | [📣 Social](https://www.lernblog.org)"
 +++
