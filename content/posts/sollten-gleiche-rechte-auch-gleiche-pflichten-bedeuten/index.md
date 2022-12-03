@@ -81,8 +81,6 @@ Im Grossen und Ganzen war der heutige Tag ein Erfolg. Wir haben viel über das M
 
 
 
-
-
 <hr>
 
-***Autorinnen:** Simona Tvareková und Lucía Bohner Rubiolo*
+Autorinnen: Simona Tvareková und Lucía Bohner Rubiolo
