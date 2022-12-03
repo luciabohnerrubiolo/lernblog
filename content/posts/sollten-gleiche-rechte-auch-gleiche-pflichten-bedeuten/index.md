@@ -79,6 +79,6 @@ Gestärkt gehen wir nun zurück in einen Raum, wo schon ein «Marktplatz» vorbe
 
 Im Grossen und Ganzen war der heutige Tag ein Erfolg. Wir haben viel über das Militärleben einer Frau gelernt, haben einen Einblick in die verschiedenen Gattungen der Armee bekommen und haben erfahren, wie der Rekrutierungsprozess abläuft. Wenn wir uns für die Rekrutierung anmelden wollen, haben wir alle Informationen, die wir benötigen. Wir haben sogar das Anmeldeformular, welches uns schon zu Beginn des Orientierungstages gegeben wurde. Somit sind wir bestens vorbereitet. Ausserdem könnten wir uns – was vorher nicht der Fall war – vorstellen, in die Armee zu gehen. Der Orientierungstag hat somit seinen Zweck erfüllt.
 
+<hr>
 
-
-***Autorinnen:** Simona Tvareková und Lucía Bohner Rubiolo*
+**Autorinnen:** Simona Tvareková und Lucía Bohner Rubiolo*
